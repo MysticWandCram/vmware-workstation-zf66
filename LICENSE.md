@@ -1,4 +1,4 @@
-# 
+# premium VMware Workstation para PC scripts é o melhor VMware Workstation para PC scripts com adicoes para convidados e modo transparente. Seguro, confiável e otimizado para máximo
 
 
 
